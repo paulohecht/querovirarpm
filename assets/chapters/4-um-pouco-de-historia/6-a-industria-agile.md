@@ -1,0 +1,5 @@
+### A indústria Agile
+
+Um dos signatários do manifesto original, Dave Thomas, gosta de repetir em seus [discursos raivosos](https://www.youtube.com/watch?v=a-BOSpxYJ9M) como a indústria transformou um adjetivo em substantivo para vender mais e isso matou toda a proposta inicial. O manifesto para desenvolvimento ágil de sofware - onde ágil é um adjetivo caracterizando o desenvolvimento - virou o Manifesto Ágil, e pior, para nós tupinikins criamos ainda mais um passo de distanciamento ao usar o termo inglês Agile.
+
+Com essa embalagem, os valores se perderam, nos pegamos discutindo se valia a pena "Fazer Agile" ao invés de nos tornarmos ágeis. Para ser Agile, e garantir sua carreira como Scrum master ou Product Owner bastava pegar uma das muitas certificações Agile disponíveis no mercado e nos vimos novamente priorizando processos e ferramentas. E com o distânciamento entre Scrum masters e product owners do time de desenvolvimento, o próximo passo foi sucumbir a colaboração e voltar a exigir escopos fechados com documentação explícita e seguir um plano. Foi quando aplicar Agile passou a ser cascatas de duas semanas. 

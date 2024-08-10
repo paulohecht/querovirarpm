@@ -1,0 +1,12 @@
+Por que você quer virar PM?
+---------------------------
+
+Das pessoas que eu conversei, um dos motivos é unânime para querer encarar essa transição. E aposto que você sabe qual é! Se pensou em salário, acertou! A oportunidade de trabalhar em times de tecnologia vem com um ganho salarial bastante relevante em relação às demais profissões do mercado. Estamos falando de em apenas alguns anos atingir salários de R$ 12.000 a R$ 20.000... NO BRASIL!!! REMOTO!!! TRABALHANDO DE CASA!!! Se inglês ainda for sua praia e você se jogar, você pode ultrapassar US$ 120.000 por ano! Deixo pra você fazer as contas com a cotação atualizada.
+
+Mas espere! Você não vai sair ganhando dinheiro sem experiência nenhuma - na verdade, a chance é grande de você até já começar com um salário acima da média da sua área na largada - mas quero garantir que entenda que a experiência é o combustível que vai te ajudar a chegar cada vez mais longe. E essa experiência vem muito rápido, e, diferente de muitas outras áreas, não tem limites para o quão longe você chega.
+
+Se eu ainda não te convenci falando sobre o salário e as oportunidades de carreira porquê você ama sua área de formação, saiba que existe uma empresa de tecnologia lá fora fazendo um produto digital dentro do domínio da sua área que pode se beneficiar muito de um PM como você. Sim, até mesmo a SUA formação! Pode dar um pouquinho mais de trabalho encontrar e conquistar uma oportunidade específica assim, mas não é impossível. A grande questão é que você não precisa desistir dos seus sonhos para fazer essa transição, basta dar uma pequena ajustada multiplicando seu potencial de impacto por milhões.
+
+A área de produto é também o canal para você entrar em uma empresa moderna. A oportunidade de aprender, no dia-a-dia sobre como essas empresas operam é algo inigualável. Com o passar dos meses, você vai aprender por osmose conceitos de Tecnologia, Marketing, RH, Financeiro, etc. ampliando seu conhecimento e aumentando exponencialmente seu leque de possibilidades no mercado. Isso sem contar o desenvolvimento de habilidades pessoais como liderança, comunicação, negociação, solução de problemas. Depois de entrar na área, cada ano que passa é um ano de empoderamento profissional de fato.
+
+Enfim, pode pular que a água tá quentinha!
